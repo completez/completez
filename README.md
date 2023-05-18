@@ -2,6 +2,7 @@
 
 
 - 🔭 I'm 15 year
+- 😉 I'm studying at Debsirin School
 - 🌱 I’m currently learning everything 🤣
 
 
